@@ -6,5 +6,6 @@
 
 💕 Música,Teatro,Mistério,Fotografias...
 
-![nathy](https://user-images.githubusercontent.com/85496172/204005684-f1a23b5f-1fe7-4948-9a4e-867f40afa96d.jpg)
+
+![haha](https://user-images.githubusercontent.com/85496172/204007855-96fead82-9240-40ef-9c66-12fa4a327f7d.jpg)
 
