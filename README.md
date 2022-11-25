@@ -1,4 +1,4 @@
-🖥️CTISM-Info (info maior e melhor) 
+Uma adolesccente que veio parar de paraquedas no curso de TI e sofre a dois anos sem entender nada 😭
 
 🤓 Pq eu escolhi  informatica???
 
