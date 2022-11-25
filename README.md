@@ -1,8 +1,8 @@
-Uma adolesccente que veio parar de paraquedas no curso de TI e sofre a dois anos sem entender nada 😭
+😭 Uma adolesccente que veio parar de paraquedas no curso de TI e sofre a dois anos sem entender nada
 
 🤓 Pq eu escolhi  informatica???
 
-🌸16  years
+🌸 16  years
 
 💕 Música,Teatro,Mistério,Fotografias...
 
