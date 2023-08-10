@@ -1,4 +1,4 @@
-😭 Uma adolescente que veio parar de paraquedas no curso de TI e sofre a dois anos sem entender nada
+😭 Uma adolescente que veio parar de paraquedas no curso de TI e sofre a três anos sem entender nada
 
 🤓 Pq eu escolhi  informatica???
 
