@@ -8,9 +8,10 @@ Olá, me chamo  Nathielly Karolaine
 
  Uma adolescente que  parou de paraquedas no curso de TI e se formou 🎓✨
 
-![Imagem.](blob:https://web.whatsapp.com/808a6d97-4e9f-43e7-8f3d-338056f3e09a.png)
 
 
 
 
 
+
+![WhatsApp Image 2024-01-16 at 18 21 02 (1)](https://github.com/Karolaine516/Karolaine516/assets/85496172/cede97ca-5dec-4233-9ccf-ab32bda14516)
