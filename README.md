@@ -9,5 +9,5 @@ Olá, me chamo  Nathielly Karolaine
  Uma adolescente que  parou de paraquedas no curso de TI e se formou 🎓✨
 
 
-![image](https://web.whatsapp.com/808a6d97-4e9f-43e7-8f3d-338056f3e09a)
+![image](<img src="/assets/img/nathy.png">
 
