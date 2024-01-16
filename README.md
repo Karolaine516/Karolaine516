@@ -1,8 +1,8 @@
-😭 Uma adolescente que veio parar de paraquedas no curso de TI e sofre a três anos sem entender nada
+Uma adolescente que  parou de paraquedas no curso de TI e se formou 🎓✨
 
-🤓 Pq eu escolhi  informatica???
+🤓 Técnica em Informática para Internet- CTISM|UFSM
 
-🌸 17  years
+🌸 18  years
 
 💕 Música,Teatro,Mistério,Fotografias...
 
